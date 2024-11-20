@@ -1,0 +1,1 @@
+# naikigasuki.github.io
